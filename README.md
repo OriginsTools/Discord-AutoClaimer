@@ -3,10 +3,9 @@
 
 • Discord Monitor
 
+Discord:hex081
 
-Join /xbs and make a ticket
+Join /H8mQnrrBAh and make a ticket
 
 
-Discord:4yl
-
-discord.gg/xbs
+discord.gg/H8mQnrrBAh
